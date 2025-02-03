@@ -17,3 +17,5 @@
 ### Estadisticas
 
 ![Image](https://github.com/user-attachments/assets/858e6e25-a965-4511-b46f-9512f557c763)
+
+### Reflexión
